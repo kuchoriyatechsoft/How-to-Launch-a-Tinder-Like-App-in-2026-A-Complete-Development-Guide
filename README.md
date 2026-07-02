@@ -1,6 +1,6 @@
 # How to Build a Tinder Clone App in 2026: Complete Guide for Founders
 
-[app development ](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/1782910076300_52c10251-95d6-4eaf-8565-88f419e6739b.webp)
+[app development](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/1782910076300_52c10251-95d6-4eaf-8565-88f419e6739b.webp)
 
 ---
 
